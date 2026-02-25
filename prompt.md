@@ -1,0 +1,1 @@
+In the reinforced streets of Bastion, the powerhouse Atlas pulses with Green might, while in the rain-slicked alleys of Mist-Fall, the traumatized Wraith seeks a Blue vengeance; simultaneously, the genius Cipher controls the Red networks of Neon-Grid, and the aristocrat Gideon expands his White empire from the heights of Lumina.
